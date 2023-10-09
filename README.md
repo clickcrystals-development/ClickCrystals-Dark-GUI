@@ -8,5 +8,5 @@ This pack features:
  - Higher contrast widgets
  - and much more!!
 ```
- **for more versions join the [click crystals discord](https://discord.gg/t7bGS2nAVF) textures!** 
+ **for more versions join the [click crystals discord server](https://discord.gg/t7bGS2nAVF) for textures and more!** 
 
